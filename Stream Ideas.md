@@ -1,2 +1,8 @@
 [[Wii]]
 [[Talent Show]]
+[[Hot Ones]]
+[[Shein]]
+[[Tekken]]
+[[Rocket League]]
+[[Gang Beasts]]
+[[Lan Challenge Party]]
