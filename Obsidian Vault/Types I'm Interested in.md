@@ -1,0 +1,6 @@
+[[Latinas]]
+[[Asians]]
+[[Whites]]
+[[Blacks]]
+[[Hispanics]]
+[[Ms. Lucy]]
